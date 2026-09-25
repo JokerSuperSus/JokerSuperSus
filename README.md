@@ -1,4 +1,4 @@
-## Eject me bruh
+## "None gonna care about me. why does it matter? "
 
 <img width="1200" height="180" alt="Image" src="https://github.com/user-attachments/assets/0bb4b02a-df65-4a03-b497-65106e051770" />
 
